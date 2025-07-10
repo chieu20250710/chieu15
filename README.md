@@ -10,4 +10,4 @@
 
 这些平台专注于久久99久久99精品免观看资源，提供大量麻豆传媒的高清影视作品，内容丰富，更新快速。每个视频页面都详细介绍影片信息，包括时长、主演和画质，支持高清流畅播放，自动根据网络状况调整画质，确保观影体验顺畅。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/chieu20250710/chieu15 ）</span>
