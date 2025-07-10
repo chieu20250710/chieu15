@@ -10,4 +10,4 @@
 
 这些平台专注于免费观看电视剧资源，聚合了多样热门影视内容，更新快速，分类明确。视频页面包含详细介绍，如影片时长、清晰度和主演阵容，支持高清播放，并能根据网络速度自动优化画质，确保流畅观看体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/chieu20250710/chieu15 ）</span>
